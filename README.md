@@ -1,1 +1,0 @@
-# Note-Taker-Mauricio-Trevino
